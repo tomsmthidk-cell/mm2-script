@@ -1,2 +1,2 @@
-# mm2-script
-script very scripty😭✌️
+my scripts are obfuscated but ive created a tab for non obfuscated ones
+(soon)
